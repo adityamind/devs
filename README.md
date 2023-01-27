@@ -1,3 +1,0 @@
-# devs
-
-Subjajaj
